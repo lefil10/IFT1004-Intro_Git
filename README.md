@@ -5,4 +5,8 @@ Répondez aux questions ci-dessous:
 
 Quel est votre passe-temps préféré en dehors des cours?
 
+-> Faire du ski.
+
 Préférez-vous travailler en groupe ou seul(e) pour résoudre des problèmes? Pourquoi?
+
+-> En groupe.
